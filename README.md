@@ -1,2 +1,2 @@
 # quick
-img to html
+https://prottasha86nag.github.io/quick/
